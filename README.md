@@ -19,4 +19,6 @@ Flash photography is best used in full sunlight.
 
 Please wait outside of the house.
 
+She was amazed by the large chunks of ice washing up on the beach.
+
 
