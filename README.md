@@ -5,3 +5,4 @@ Wow! New text.
 
 This line is awesome!
 
+A third new line.
